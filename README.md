@@ -4,3 +4,5 @@
 [Ata ^_^](https://hachiwaresmotherforreal.atabook.org/) || . . . . . . . . . . . . ||[Strawpage ><](https://chiware.straw.page) Please read/Check out!!!<<<<< . . . . . . . . . . . . (Art drawn by me.)
 
 ![4854](https://github.com/user-attachments/assets/9025c1c1-3d92-4c5a-8418-3932d5262b87)
+
+Ａｒｅ ｙｏｕ, ａｒｅ ｙｏｕ, ｃｏｍｉｎｇ ｔｏ ｔｈｅ ｔｒｅｅ?
