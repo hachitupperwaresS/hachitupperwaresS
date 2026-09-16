@@ -1,7 +1,6 @@
-<img width="867" height="299" alt="4796" src="https://github.com/user-attachments/assets/560055c9-a4f9-439d-a94a-2982c942eba5" />
+<img width="836" height="368" alt="4796" src="https://github.com/user-attachments/assets/fd1ba7f5-4618-4c22-abf8-bac25dc24639" />
 
-[Ata ^_^](https://hachiwaresmotherforreal.atabook.org/) || [Strawpage ><](https://chiware.straw.page) Please read/Check out!!!<<<<<
 
-<img width="136" height="136" alt="4797" src="https://github.com/user-attachments/assets/933230ad-b17a-4e87-a673-d13e1d308d02" /> <img width="136" height="136" alt="4795" src="https://github.com/user-attachments/assets/a6feb7c6-95d5-4018-b95d-3209c3a078ab" /> <img width="136" height="136" alt="4797" src="https://github.com/user-attachments/assets/933230ad-b17a-4e87-a673-d13e1d308d02" /> <img width="136" height="136" alt="4795" src="https://github.com/user-attachments/assets/a6feb7c6-95d5-4018-b95d-3209c3a078ab" /> <img width="136" height="136" alt="4797" src="https://github.com/user-attachments/assets/933230ad-b17a-4e87-a673-d13e1d308d02" /> <img width="136" height="136" alt="4795" src="https://github.com/user-attachments/assets/a6feb7c6-95d5-4018-b95d-3209c3a078ab" />
+[Ata ^_^](https://hachiwaresmotherforreal.atabook.org/) || . . . . . . . . . . . . ||[Strawpage ><](https://chiware.straw.page) Please read/Check out!!!<<<<< . . . . . . . . . . . . (Art drawn by me.)
 
-"ᴀʀᴇ ʏᴏᴜ, ᴀʀᴇ ʏᴏᴜ, ᴄᴏᴍɪɴɢ ᴛᴏ ᴛʜᴇ ᴛʀᴇᴇ?" . . . . . . . . . . . . . . . . . . . okay.. pls sign ata or int with me im lonely haha
+![4854](https://github.com/user-attachments/assets/9025c1c1-3d92-4c5a-8418-3932d5262b87)
